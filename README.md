@@ -33,3 +33,35 @@
     * [https://www.kmdn.gov.tw/1117/1271/1275/259285/]
   * 石獅典故
     * [https://www.kmdn.gov.tw/1117/1271/1276/557089/?cprint=pt]
+
+# 馬祖文化相關協會聯絡清單  
+
+### 1. 馬祖青年發展協會 (Matsu Youth Development Association)
+* **官方連結**：[國家地方創生入口網](https://twrr.org.tw/zh-TW/partner/41)
+* **負責人**：理事長 王錦儀 (0978-852-023)
+* **公司電話**：0978-616-603
+* **公司信箱**：myda1213@gmail.com
+* **特色**：馬祖母語（閩東語）保存、文化導覽、青年返鄉推廣。
+
+### 2. 泊島文化工作室 (Island Inland Cultural Studio)
+* **官方連結**：[合作夥伴頁面](https://twrr.org.tw/zh-TW/partner/156)
+* **聯絡信箱**：ychiuu@gmail.com
+* **特色**：馬祖國際藝術島策展、地方誌編纂。
+
+## 社區發展協會 (Community Development)
+
+| 協會名稱 | 聯絡電話 | 電子信箱 | 重點項目 |
+| :--- | :--- | :--- | :--- |
+| **鐵板社區發展協會** | 0937-426-333 | yuyin@matsu.edu.tw | 鐵板燒塔節、聚落保存 |
+| **馬港社區發展協會** | 0836-23247 | magangbuluo@yahoo.com.tw | 媽祖文化、馬港商圈 |
+| **東莒社區發展協會** | 0836-88024 | a083688024@gmail.com | 東莒燈塔、在地生活推廣 |
+
+
+## 公部門與大型組織
+
+* **連江縣政府文化處**
+    * 官網：[文化馬祖](https://www.matsucc.gov.tw/)
+    * 電話：0836-23146
+* **中華文化總會 (GACC)**
+    * 官網：[https://www.gacc.org.tw](https://www.gacc.org.tw)
+    * 電話：02-2396-4256
