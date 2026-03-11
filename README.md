@@ -32,7 +32,10 @@
   * 沖繩獅爺與金門風獅爺
     * [https://www.kmdn.gov.tw/1117/1271/1275/259285/]
   * 石獅典故
-    * [https://www.kmdn.gov.tw/1117/1271/1276/557089/?cprint=pt]
+    * [https://www.kmdn.gov.tw/1117/1271/1276/557089/?cprint=pt]  
+   
+* 就是楊小禎
+  * [https://www.94jen.com/2018/11/]
 
 # 馬祖文化相關協會聯絡清單  
 
