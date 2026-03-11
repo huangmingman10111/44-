@@ -68,3 +68,7 @@
 * **中華文化總會 (GACC)**
     * 官網：[https://www.gacc.org.tw](https://www.gacc.org.tw)
     * 電話：02-2396-4256
+
+## 馬祖住宿資訊
+* [https://www.taiwan.net.tw/m1.aspx?sNo=0001016&id=10447&layer1=11]
+* 
